@@ -1,0 +1,1 @@
+# AI4D-Africa-s-Anglophone-Research-Lab-Tanzania-Tourism-Classification-Challenge
